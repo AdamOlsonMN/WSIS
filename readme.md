@@ -1,0 +1,1 @@
+http://smr.sagepub.com/content/23/2/174.refs
